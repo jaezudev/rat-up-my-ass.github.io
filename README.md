@@ -1,1 +1,1 @@
-http://allahsoft.com
+http://allahsoft.com (retired)
